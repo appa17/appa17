@@ -18,3 +18,5 @@ I sometimes feel like i am being watched but it's alright.
 
 My motto is "If in doubt, flat out!"
 
+Go in, do the thing and leave, easy.
+
