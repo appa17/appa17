@@ -16,5 +16,5 @@ Here are some ideas to get you started:
 -->
 I sometimes feel like i am being watched but it's alright. 
 
-My motto is "Go in, do the thing."
+My motto is "If in doubt, flat out!"
 
