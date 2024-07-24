@@ -14,7 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-##I sometimes feel like i am being watched but it's alright. 
+I sometimes feel like i am being watched but it's alright. 
 
-##My motto is "Go in, do the thing."
+My motto is "Go in, do the thing."
 
